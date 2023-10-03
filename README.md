@@ -1,0 +1,1 @@
+# GDP2022_Per_Capita_MAP
